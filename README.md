@@ -1,0 +1,1 @@
+# dars-Asosiy_dastur
